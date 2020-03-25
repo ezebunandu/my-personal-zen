@@ -1,0 +1,20 @@
+# The Sense of Style
+- We are going to die, and that makes us the lucky ones. Good writing starts strong. Not with a cliché (“Since the dawn of time”), not with a banality (“Recently, scholars have been increasingly concerned with the question of . . .”), but with a contentful observation that provokes curiosity.
+- good writing does not fit into a single formula.
+- writer, like a cinematographer, manipulates the viewer’s perspective on an ongoing story, with the verbal equivalent of camera angles and quick cuts.
+- A writer, like a cinematographer, manipulates the viewer’s perspective on an ongoing story, with the verbal equivalent of camera angles and quick cuts.
+- According to studies of writing quality, a varied vocabulary and the use of unusual words are two of the features that distinguish sprightly prose from mush.
+- The best words not only pinpoint an idea better than any alternative but echo it in their sound and articulation, a phenomenon called phonesthetics, the feeling of sound.
+- We live in an era of social science, and have become accustomed to understanding the social world in terms of “forces,” “pressures,” “processes,” and “developments.” It is easy to forget that those “forces” are statistical summaries of the deeds of millions of men and women who act on their beliefs in pursuit of their desires.
+- Georgia”), and its lyrical anapest
+- The authors of the four passages share a number of practices: an insistence on fresh wording and concrete imagery over familiar verbiage and abstract summary; an attention to the readers’ vantage point and the target of their gaze; the judicious placement of an uncommon word or idiom against a backdrop of simple nouns and verbs; the use of parallel syntax; the occasional planned surprise; the presentation of a telling detail that obviates an explicit pronouncement; the use of meter and sound that resonate with the meaning and mood.
+- Speaking and writing involve very different kinds of human relationship, and only the one associated with speech comes naturally to us.
+- We enjoy none of this give-and-take when we cast our bread upon the waters by sending a written missive out into the world. The recipients are invisible and inscrutable, and we have to get through to them
+- We enjoy none of this give-and-take when we cast our bread upon the waters by sending a written missive out into the world. The recipients are invisible and inscrutable, and we have to get through to them without knowing much about them or seeing their reactions.
+- Writing is above all an act of pretense. We have to visualize ourselves in some kind of conversation, or correspondence, or oration, or soliloquy, and put words into the mouth of the little avatar who represents us in this simulated world.
+- The key to good style, far more than obeying any list of commandments, is to have a clear conception of the make-believe world in which you’re pretending to communicate.
+- The purpose of writing is presentation, and its motive is disinterested truth. It succeeds when it aligns language with the truth, the proof of success being clarity and simplicity.
+- ???
+- Classic writing, with its assumption of equality between writer and reader, makes the reader feel like a genius. Bad writing makes the reader feel like a dunce.
+- It takes cognitive toil and literary dexterity to pare an argument to its essentials, narrate it in an orderly sequence, and illustrate it with analogies that are both familiar and accurate.
+- The summary should be self-contained, almost as if the material being summarized had never existed.

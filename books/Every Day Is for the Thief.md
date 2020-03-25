@@ -1,0 +1,36 @@
+# Every Day Is for the Thief
+- I have taken into myself some of the assumptions of life in a Western democracy—certain ideas about legality, for instance, certain expectations of due process—and in that sense I have returned a stranger.
+- No one else seems to worry, as I do, that the money demanded by someone whose finger hovers over the trigger of an AK-47 is less a tip than a ransom.
+- For many Nigerians, the giving and receiving of bribes, tips, extortion money, or alms—the categories are fluid—is not thought of in moral terms. It is seen either as a mild irritant or as an opportunity. It is a way of getting things done, neither more nor less than what money is there for.
+- victims. After I see several such incidents at Tomsed, the initial frisson
+- There is a sense, I think, in which the swindler and the swindled deserve each other. It is a kind of mutual humiliation society.
+- The engine for this industry is greed, and it is impossible to control because it is far more decentralized than anyone can govern.
+- They don’t understand that being there on the danfo, being there on the streets, is the whole point of the exercise. And there is no instinct there for helping them understand it, and all they have to hold on to is how contrary I was even as a child, in those years before my father died.
+- Touting is not a job. It is a way of being in the world, a distillate of pure attitude: the chest puffed out, the body limber, the jaw set to brook no opposition. There is in every tout the same no-nonsense attitude
+- Touting is not a job. It is a way of being in the world, a distillate of pure attitude: the chest puffed out, the body limber, the jaw set to brook no opposition. There is in every tout the same no-nonsense attitude, the quick temper, the willingness to get into a fight over any and all conflicts. There is a strut they do, a swagger. These are the original wiseguys of Lagos;
+- The trick is to present an outward attitude of alertness, while keeping a calm and observant mood within. And there also has to be the will to be violent, a will that has to be available when it is called for.
+- think of Auden’s line: Poetry makes nothing happen.
+- I think of Auden’s line: Poetry makes nothing happen.
+- —Both of those things are true. But neither follows from the other. A humanist is someone who believes in humanity, someone who celebrates human ability and potential. That’s where we get the word “humanities” from. A person who doesn’t believe in God is an
+- —Both of those things are true. But neither follows from the other. A humanist is someone who believes in humanity, someone who celebrates human ability and potential. That’s where we get the word “humanities” from. A person who doesn’t believe in God is an atheist.
+- The market has seen everything. It must eat. It does not break its habits.
+- Had John Updike been African, he would have won the Nobel Prize twenty years ago.
+- Hell yeah!
+- It is the same thing one might observe in Bombay around Victoria Terminus, a combination of the borrowed old and the uncertain new. The
+- It is the same thing one might observe in Bombay around Victoria Terminus, a combination of the borrowed old and the uncertain new.
+- It is as though there is the idea that a national museum is a good thing to have, but no one has the interest or ability to present it properly. History, which elsewhere is a bone of contention, has yet to enter the Nigerian public consciousness, at least judging by institutions like the museum.
+- life is hard in Nigeria, man. Life is very hard for the majority. We’re
+- life is hard in Nigeria, man. Life is very hard for the majority. We’re all looking to get out.
+- New Orleans was the largest market for human chattel in the New World. There were twenty-five different slave markets in the city in 1850.
+- The fratricidal Yoruba wars of the eighteenth and early nineteenth centuries were a great boost to the transatlantic traffic in human beings.
+- Some of these intertribal wars were waged for the express purpose of supplying slaves to traders. At thirty-five British pounds for each healthy adult male, it was a lucrative business.
+- Black hands supported and prospered from the slave trade just as much.
+- Why is history uncontested here? There is no sight of that dispute over words, that battle over versions of stories that marks the creative
+- Why is history uncontested here? There is no sight of that dispute over words, that battle over versions of stories that marks the creative inner life of a society. Where are the contradictory voices?
+- Silenced perhaps, by the struggle that characterizes everyday life in Lagos
+- The pauses last too long. The tension is that of a waiting room, and I wonder why I have come, why I have chosen, yet again, to recover the impossible.
+- Or is it enough to settle for sophistication without troubling oneself about the laws that defend creativity?
+- Nigerians do not always have the philosophical equipment to deal with the material goods they are so eager to consume. We fly planes but we do not manufacture aircraft, much less engage in aeronautical research. We use cellphones but we do not make them. But, more important, we do not foster the ways of thinking that lead to the development of telephones or jet engines. Part of that philosophical equipment is an attention to details: a rejection of only the broad outlines of a system, a commitment to precision, an engagement with the creative and scientific spirit behind what one uses.
+- President Obasanjo’s hobbyhorse is the “image” of the country. He believes that the greatest damage to Nigeria is being done by critics. These unpatriotic people are, in his opinion, the ones spoiling the country. He insists that the only real flaw is in the pointing out of flaws. One should only say good things. After all, no society can claim perfection.
+- This is the worldview in which prayer is a sufficient solution for plane crashes. Everyone expects a miracle, and those who do not receive theirs are blamed for having insufficient faith.
+- The feeling that the laws of imagination matter more than all others....

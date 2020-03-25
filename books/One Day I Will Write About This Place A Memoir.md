@@ -1,0 +1,31 @@
+# One Day I Will Write About This Place A Memoir
+- Sometimes we like Moi because he fumbles, like all of us. He isn’t booming like Kenyatta, or polished and slick like Charles Njonjo. His English stumbles; his Kiswahili is broken and sincere.
+- Soon we cross into the other world, to buy handmade wire cars and trade homing pigeons from kids who speak strange languages, who laugh if you speak English to them—they understand it, but find it pretentious; kids who wear no shoes, kids who miss school a lot, and have babies very early and smell of smoke from charcoal cooking, who go hunting with dogs and catapults for antelopes and rabbits and pigeons, in the forest above our home, for fun.
+- I cannot wink well. I have practiced a cool wink many times in front of the mirror but can’t get one eye to shut confidently on its own.
+- and the promises of the grandsons and granddaughters
+- and the promises of the grandsons and granddaughters of the first ones to be so violently formatted.
+- The terrible curse of the past is that it always starts right now. Hindsight will pull facts to its present demand; it is the dental brace that will reshape your jaw, your resolve. When hindsight desires enough, it obliterates uncertainty. All the selected past becomes an argument for action.
+- All over Kenya, as politics sour, there is a fever of rapture-seeking.
+- I love the music of noiseless elevators: the whoosh of hydraulics, a promise of soft landings.
+- and no sleep in the world is better than the sleep under the roar of rain on a naked mabati roof.
+- Open mouths, and music, thousands and thousands of white people throwing food and tears and happiness to naked, writhing Africans who can’t speak, don’t have dreams, and share leftovers with vultures.
+- Illusions are peculiar creatures. We assume whole things, when a stranger’s movements show a pattern that seems consistent but a single sharp contradiction arrives and a person becomes not whole but a series of mistakes: bits and parts. A whole system falls apart—if no faith or vision carries it.
+- We sit in a nightclub called Dazzle, children of the mad rush out of Africa. This is not Africa. We are told that every day by people here. Are you from Africa? South Africa is not Africa.
+- If there is a miracle in the idea of life, it is this: that we are able to exist for a time, in defiance of chaos.
+- We don’t want casualties from the past; they remind of us of the essential cruelty of hope. What if change comes and we find ourselves unable?
+- If there is a courtesy every Kenyan practices, it is that we don’t question each other’s contradictions; we all have them,
+- If there is a courtesy every Kenyan practices, it is that we don’t question each other’s contradictions; we all have them, and destroying someone’s face is sacrilege.
+- Life has urgency when it stands around death. There is no grass as beautiful as the blades that stick out after the first rain.
+- Cloud travel is well and good when you have mastered the landings. I never have. I must live, not dream about living.
+- We must live and not dream about living.
+- For Bidudu, there was no end to Rwanda—he believed that Rwanda ended only where “the sky was held up by pillars.” Wherever one went, one kept one’s citizenship.
+- Visas, wars, closed borders, and a thousand triumphs of chaos have kept them apart.
+- One day, I will write about this place.
+- Which face do you pick to meet chaos? The one built from the ground up, baring all your past, all your scars? Or the adopted one, wired to a certain manner that you have discovered will open doors to the scholarshipped, resuméd, backed-up, buffered world out there and the
+- Which face do you pick to meet chaos? The one built from the ground up, baring all your past, all your scars? Or the adopted one, wired to a certain manner that you have discovered will open doors to the scholarshipped, resuméd, backed-up, buffered world out there and the
+- Which face do you pick to meet chaos? The one built from the ground up, baring all your past, all your scars? Or the adopted one, wired to a certain manner that you have discovered will open doors to the scholarshipped, resuméd, backed-up, buffered world out there and the piece of stamped paper that promises that you will inherit the earth?
+- I start to understand why so little good literature is produced in Kenya. The talent is wasted writing donor-funded edutainment and awareness-raising brochures for seven thousand dollars a job. Do not complicate things, and you will be paid very well.
+- car will pause and picture this. We live by these acts, in any part of this country, where neither our anthem nor our tax base nor our language nor our view of the world is in any way universal.
+- We live by these acts, in any part of this country, where neither our anthem nor our tax base nor our language nor our view of the world is in any way universal.
+- It often feels like an unbearable privilege—to write. I make a living from simply taking all those wonderful and horrible patterns in my past and making them new and strong. I know people better. Sometimes I want to stop writing because I can’t bear the idea that it may one day go away. Sometimes I feel I would rather stop, before it owns me completely. But I can’t stop.
+- People in books do not have an actual voice for your ears. You cannot see them. You, the reader, work with a good author to make them move around your head, toss their hair, hate and love, and need things urgently.

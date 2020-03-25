@@ -1,0 +1,4 @@
+# Go Tell It on the Mountain
+- John was not much interested in his people and still less in leading them anywhere
+- It was not only colored people who praised John, since they could not, John felt, in any case really know; but white people also said it, in fact had said it first and said it still. It was when John was five years old and in the first grade that he was first noticed; and since he was noticed by an eye altogether alien and impersonal, he began to perceive, in wild uneasiness, his individual existence.
+- That moment gave him, from that time on, if not a weapon at least a shield; he apprehended totally, without belief or understanding, that he had in himself a power that other people lacked; that he could use this to save himself, to raise himself; and that, perhaps, with this power he might one day win that love which he so longed for.

@@ -1,0 +1,27 @@
+# The God of Small Things
+- the queer compassion of the very poor for the comparatively well off,
+- Heaven opened and the water hammered down, reviving the reluctant old well, greenmossing the pigless pigsty, carpet bombing still, tea-colored puddles the way memory bombs still, tea-colored minds.
+- Estha occupied very little space in the world.
+- It is curious how sometimes the memory of death lives on for so much longer than the memory of the life that it purloined.
+- Rahel drifted into marriage like a passenger drifts towards an unoccupied chair in an airport lounge. With a Sitting Down sense. She returned with him to Boston.
+- That Big God howled like a hot wind, and demanded obeisance. Then Small God (cozy and contained, private and limited) came away cauterized, laughing numbly at his own temerity. Inured by the confirmation of his own inconsequence, he became resilient and truly indifferent. Nothing mattered much. Nothing much mattered. And the less it mattered, the less it mattered. It was never important enough. Because Worse Things had happened. In the country that she came from, poised forever between the terror of war and the horror of peace, Worse Things kept happening.
+- For the Time Being they had no surname because Ammu was considering reverting to her maiden name, though she said that choosing between her husband’s name and her father’s name didn’t give a woman much of a choice.
+- It was as though the window through which their father disappeared had been kept open for anyone to walk in and be welcomed.
+- Looking at herself like this, Ammu’s soft mouth would twist into a small, bitter smile at the memory—not of the wedding itself so
+- Looking at herself like this, Ammu’s soft mouth would twist into a small, bitter smile at the memory—not of the wedding itself so much as the fact that she had permitted herself to be so painstakingly decorated before being led to the gallows. It seemed so absurd. So futile. Like polishing firewood.
+- Ammu said that human beings were creatures of habit, and it was amazing the kind of things they could get used to. You only had to look around you, Ammu said, to see that beatings with brass vases were the least of them.
+- “We’re Prisoners of War,” Chacko said. “Our dreams have been doctored. We belong nowhere. We sail unanchored on troubled seas. We may never be allowed ashore. Our sorrows will never be sad enough. Our joys never happy enough. Our dreams never big enough. Our lives never important enough. To matter.”
+- The Marxists worked from within the communal divides, never challenging them, never appearing not to. They offered a cocktail revolution. A heady mix of Eastern Marxism and orthodox Hinduism, spiked with a shot of democracy. Though Chacko was not a card-holding member of the Party, he had been converted early and had remained, through all its travails, a committed supporter.
+- The Marxists worked from within the communal divides, never challenging them, never appearing not to. They offered a cocktail revolution. A heady mix of Eastern Marxism and orthodox Hinduism, spiked with a shot of democracy. Though
+- The Marxists worked from within the communal divides, never challenging them, never appearing not to. They offered a cocktail revolution. A heady mix of Eastern Marxism and orthodox Hinduism, spiked with a shot of democracy. Though
+- The Marxists worked from within the communal divides, never challenging them, never appearing not to. They offered a cocktail revolution. A heady mix of Eastern Marxism and orthodox Hinduism, spiked with a shot of democracy.
+- This was the trouble with families. Like invidious doctors, they knew just where it hurt.
+- His gratitude widened his smile and bent his back.
+- “When you hurt people, they begin to love you less. That’s what careless words do. They make people love you a little less.”
+- And the Air was full of Thoughts and Things to Say. But at times like these, only the Small Things are ever said. The Big Things lurk unsaid inside.
+- And once again, only the Small Things were said. The Big Things lurked unsaid inside.
+- Because Ammu had not had the kind of education, nor read the sorts of books, nor met the sorts of people, that might have influenced her to think the way she did. She was just that sort of animal.
+- It is after all so easy to shatter a story. To break a chain of thought. To ruin a fragment of a dream being carried around carefully like a piece of porcelain.
+- they stopped at the temple to ask pardon of their gods. To apologize for corrupting their stories. For encashing their identities. Misappropriating their lives.
+- It was a composure born of extreme provocation. It stemmed from a lucidity that lies beyond rage.
+- And there it was again. Another religion turned against itself. Another edifice constructed by the human mind, decimated by human nature.

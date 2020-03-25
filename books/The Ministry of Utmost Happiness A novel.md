@@ -1,0 +1,24 @@
+# The Ministry of Utmost Happiness A novel
+- But eventually, the Elixir of the Soul that had survived wars and the bloody birth of three new countries, was, like most things in the world, trumped by Coca-Cola.
+- And so, in these ways, in order to please Zainab, Anjum began to rewrite a simpler, happier life for herself. The rewriting in turn began to make Anjum a simpler, happier person.
+- They could flatten history and stack it up like building material.
+- People who would normally have nothing to do with each other (the left-wing, the right-wing, the wingless) all flocked to him.
+- Several intellectuals and concerned citizens squatted on the pavement explaining farmers’ rights to farmers who had been fighting for their rights for years.
+- They had wept publicly and often, and nothing had come of it. The horror they were going through had grown a hard, bitter shell.
+- It’s another kind of globalization, I suppose, this universal terrorspeak.
+- No, we were not lovers. At no point did she ever offer me a hint that she might be open to a relationship of that sort. Had she, I don’t know myself well enough to say how things might have turned out.
+- decided to brazen it out and ask about Musa, where he was, whether they were still together, whether they planned to get married. She said, “I’m not marrying anybody.” When I asked her why she felt that way, she said she wanted to be free to die irresponsibly, without notice and for no reason.
+- I decided to brazen it out and ask about Musa, where he was, whether they were still together, whether they planned to get married. She said, “I’m not marrying anybody.” When I asked her why she felt that way, she said she wanted to be free to die irresponsibly, without notice and for no reason.
+- Since his idea of professional integrity requires him to live by his principles, in order to remain a person of integrity, he has changed his principles, and now believes in us almost more than we believe in ourselves.
+- Their problem is not confusion, not really. It’s more like a terrible clarity that exists outside the language of modern geopolitics.
+- She remembered reading somewhere that even after people died, their hair and nails kept growing.
+- She remembered reading somewhere that even after people died, their hair and nails kept growing. Like starlight, traveling through the universe long after the stars themselves had died. Like cities. Fizzy, effervescent, simulating the illusion of life while the planet they had plundered died around them.
+- She remembered reading somewhere that even after people died, their hair and nails kept growing. Like starlight, traveling through the universe long after the stars themselves had died. Like cities. Fizzy, effervescent, simulating the illusion of life while the planet they had plundered died around them.
+- He couldn’t tell whether her restlessness, her compulsive and increasingly unsafe wandering through the city, marked the onset of an unsoundness of mind or an acute, perilous kind of sanity.
+- He couldn’t tell whether her restlessness, her compulsive and increasingly unsafe wandering through the city, marked the onset of an unsoundness of mind or an acute, perilous kind of sanity. Or were they both the same thing?
+- had to do with the way she lived, in the country of her own skin. A country that issued no visas and seemed to have no consulates.
+- It had to do with the way she lived, in the country of her own skin. A country that issued no visas and seemed to have no consulates.
+- “Your mother is a remarkable woman. You must understand that it isn’t she who is uttering those ugly words.” “Oh. Who is it, then?” “Someone else. Her illness. Her blood. Her suffering. Our conditioning, our prejudices, our history…” “So to whom will I be apologizing? To prejudice? Or to history?” But she was already following him down the corridor, back to the ICU.
+- In Kashmir, throwing a man’s own bio-data at him was sometimes enough to change the course of his life.
+- in our Kashmir the dead will live forever; and the living are only dead people, pretending.
+- “the infrastructure of impunity”

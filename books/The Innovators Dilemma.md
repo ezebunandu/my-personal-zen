@@ -1,0 +1,17 @@
+# The Innovators Dilemma
+- Sears was praised as one of the best-managed companies in the world at the very time It let Visa and MasterCard usurp the enormous lead it had established in the use of credit cards In retailing.
+- the very decisions that led to its decline were made at the time it was so widely regarded as being an astutely managed firm. It was praised as a paragon of managerial excellence at the very time it was ignoring the arrival of the desktop computers that besieged it a few years later.
+- technology as used in this book, means the processes by which an organization transforms labor, capital, materials, and information into products and services of greater value.
+- how executives can simultaneously do what is right for the near-term health of their established businesses, while focusing adequate resources on the disruptive technologies that ultimately could lead to their downfall.
+- a strategically important distinction between what I call sustaining technologies and those that are disruptive.
+- Second, the pace of technological progress can, and often does, outstrip what markets need.
+- And third, customers and financial structures of successful companies color heavily the sorts of investments that appear to be attractive to them,
+- it means that disruptive technologies that may underperform today, relative to what users in the market demand, may be fully performance-competitive in that same market tomorrow.
+- these companies find it very difficult to invest adequate resources in disruptive technologies—lower-margin opportunities that their customers don’t want—until their customers want them. And by then it is too late.
+- companies can succeed in disruptive technologies when their managers align their organizations with the forces of resource dependence, rather than ignoring or fighting them.
+- Creating an independent organization, with a cost structure honed to achieve profitability at the low margins characteristic of most disruptive technologies, is the only viable way for established firms to harness this principle.
+- Because the vast majority of innovations are sustaining in character, most executives have learned to manage innovation in a sustaining context, where analysis and planning were feasible.
+- the only thing we may know for sure when we read experts’ forecasts about how large emerging markets will become is that they are wrong.
+- Companies whose investment processes demand quantification of market sizes and financial returns before they can enter a market get paralyzed or make serious mistakes when faced with disruptive technologies. They demand market data when none exists and make judgments based upon financial projections when neither revenues or costs can, In fact, be known. Using planning and marketing techniques that were developed to manage sustaining technologies in the very different context of disruptive ones is an exercise in flapping wings.
+- Investing and managing under such assumptions drives managers to develop plans for learning what needs to be known, a much more effective way to confront disruptive technologies successfully. Principle #4: An Organization’s Capabilities Define Its Disabilities When managers tackle an Innovation problem, they instinctively work to assign capable people to the job.
+- Investing and managing under such assumptions drives managers to develop plans for learning what needs to be known, a much more effective way to confront disruptive technologies successfully.

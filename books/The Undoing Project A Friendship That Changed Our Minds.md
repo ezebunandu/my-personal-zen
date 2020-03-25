@@ -1,21 +1,86 @@
 # The Undoing Project A Friendship That Changed Our Minds
+- the author of Moneyball did not seem to realize the deeper reason for the inefficiencies in the market for baseball players: They sprang directly from the inner workings of the human mind. The ways in which some baseball expert might misjudge baseball players—
+- the author of Moneyball did not seem to realize the deeper reason for the inefficiencies in the market for baseball players: They sprang directly from the inner workings of the human mind.
+- Heuristics and biases!
+- Job interviews were magic shows. He needed to fight whatever he felt during them—especially if he and everyone else in the room felt charmed.
 - It seemed to him that a big part of a consultant’s job was to feign total certainty about uncertain things.
+- In his approach to the world he was exactly the opposite. He had a diffidence about him—an understanding of how hard it is to know anything for sure.
 - He suggested a new definition of the nerd: a person who knows his own mind well enough to mistrust it.
-- “It was like a fish not knowing he is breathing water unless someone points it out,”
-- offering a general impression of the recruit’s character. General impressions had been proven to be misleading, and so Danny wanted to avoid them. For
-- “The nice thing about things that are urgent,” he liked to say, “is that if you wait long enough they aren’t urgent anymore.”
-- “He’d walk into a room and decide he didn’t want anything to do with it and he would fade into the background and just vanish,” says Dona. “It was like a superpower. And it was absolutely an abnegation of social responsibility. He didn’t accept social responsibility—and so graciously, so elegantly, didn’t accept it.”
-- “The big choices we make are practically random. The small choices probably tell us more about who we are. Which field we go into may depend on which high school teacher we happen to meet. Who we marry may depend on who happens to be around at the right time of life. On the other hand, the small decisions are very systematic. That I became a psychologist is probably not very revealing. What kind of psychologist I am may reflect deep traits.”
-- “We say ‘Turks fight like tigers’ and not ‘tigers fight like Turks.’ Since the tiger is renowned for its fighting spirit, it is used as the referent rather than the subject of the simile. The poet writes ‘my love is as deep as the ocean,’ not ‘the ocean is as deep as my love,’ because the ocean epitomizes depth.”
-- “What is distance? Distance is symmetric. New York to Los Angeles has to be the same distance as Los Angeles to New York. And Amos said, ‘Okay, let’s test that.’” If, on some mental map, New York sits a certain distance from Tel Aviv, Tel Aviv must sit precisely the same distance from New York. Yet you needed only to ask people to see that it did not: New York was not as much like Tel Aviv as Tel Aviv was like New York.
-- ‘The absence of a feature is a feature.’”
-- Those features might become more or less noticeable; their prominence in the mind depended on the context in which they were perceived. And
-- Two American college students in the United States might look at each other and see a total stranger; the same two college students on their junior year abroad in Togo might find that they are surprisingly similar: They’re both Americans!
-- Thus, similarity has two faces: causal and derivative. It serves as a basis for the classification of objects, but is also influenced by the adopted classification.”
-- That is, the mere act of classification reinforces stereotypes. If you want to weaken some stereotype, eliminate the classification.
-- “it is part of the human condition that we are statistically punished for rewarding others and rewarded for punishing them.” The other class Danny taught was about perception: how the senses interpreted and, occasionally, misled.
-- “it is part of the human condition that we are statistically punished for rewarding others and rewarded for punishing them.”
-- might unlock the deep nature of the mechanism. “How do you understand memory?” he asked. “You don’t study memory. You study forgetting.”
-- “How do you understand memory?” he asked. “You don’t study memory. You study forgetting.”
-- The Hidden Persuaders,
-- The psychologist Kurt Lewin had suggested persuasively that, rather than selling people on some change, you were better off identifying the reasons for their resistance, and addressing those.
+- “Just having the model, without any human opinion at all, forces you to ask the right questions,”
+- Ummmm....not always always.
+- Oddly enough, he hadn’t needed to change anything about himself. The world had changed to accommodate him. Attitudes toward decision making had shifted so dramatically since he was a kid that he’d been invited into professional basketball to speed the change.
+- I went home more certain than ever that my mother was right: people were endlessly complicated and interesting.”
+- The Gestalists showed that there was no obvious relationship between any external stimulus and the sensation it created in people, as the mind intervened in many curious ways.
+- even a very capable foreman, employer, teacher, or department head is unable to view an individual as a compound of separate qualities and to assign a magnitude to each of these in independence of the others.”
+- “When someone says something, don’t ask yourself if it is true. Ask what it might be true of.” That
+- “When someone says something, don’t ask yourself if it is true. Ask what it might be true of.”
+- “at how easy it is to shift from an efficient killing machine to compassionate human being, and how quick the switch may be.”
+- Amos was fond of saying that interesting things happened to people who could weave them into interesting stories.
+- “All your economic models are premised on people being smart and rational, and yet all the people you know are idiots.”
+- The sooner you figure out that Amos is smarter than you are, the smarter you are.
+- The philosopher tested his theories of human nature on a sample size of one—himself.
+- “It’s hard to know how people select a course in life,” Amos said. “The big choices we make are practically random. The small choices probably tell us more about who we are.
+- i.e. People make small decisions in a more systematic way than big ones.
+- Nerd: a person who knows his own mind well enough to mistrust it.
+- The limits of any model invited human judgment back into the decision-making process—whether it helped or not.
+- The human mind was just bad at seeing things it did not expect to see, and a bit too eager to see what it expected to see.
+- the mind’s best trick of all was to lead its owner to a feeling of certainty about inherently uncertain things.
+- Simply knowing about a bias wasn’t sufficient to overcome it:
+- the idea that all animal behavior was driven not by thoughts and feelings but by external rewards and punishments.
+- How does the brain create meaning? How does it turn the fragments collected by the senses into a coherent picture of reality?
+- “I cannot rid myself of the feeling that you would almost not know me today,” Amos wrote to his sister. “Letters cannot convey the drastic changes of a boy in an army uniform that you will meet. He will be very different from the young boy in khaki shorts that you left at the airport five years ago.”
+- It wasn’t that people actually preferred A to B and B to C and then turned around and preferred C to A. It was that it was sometimes very hard to understand the differences.
+- as the noticeability of features can be manipulated by the way they are highlighted, the sense of how similar two things are might also be manipulated.
+- By changing the context in which two things are compared, you submerge certain features and force others to the surface.
+- Things are grouped together for a reason, but, once they are grouped, their grouping causes them to seem more like each other than they otherwise would.
+- Things are grouped together for a reason, but, once they are grouped, their grouping causes them to seem more like each other than they otherwise would. That is, the mere act of classification reinforces stereotypes. If you want to weaken some stereotype, eliminate the classification.
+- “I’ve never seen a country so concerned with keeping its officials abreast on new developments in academics,”
+- Of Israel.
+- Psychologists in the late 1940s had detected—or claimed to have detected—the mind’s ability to defend itself from what it ostensibly did not want to perceive.
+- Danny, quietly viewed much of mathematical psychology as a series of pointless exercises conducted by people who were using their ability to do math as camouflage for how little of psychological interest they had to say.
+- Were human beings good intuitive statisticians? When they didn’t know the formula, did they still behave as if they did?
+- In Danny’s view, people were not conservative Bayesians. They were not statisticians of any kind. They often leapt from little information to big conclusions.
+- People mistook even a very small part of a thing for the whole. Even statisticians tended to leap to conclusions from inconclusively small amounts of evidence.
+- When people make judgments, they argued, they compare whatever they are judging to some model in their minds.
+- Representativeness!
+- We have a kind of stereotype of “randomness” that differs from true randomness. Our stereotype of randomness lacks the clusters and patterns that occur in true random sequences.
+- not just that people don’t know what they don’t know, but that they don’t bother to factor their ignorance into their judgments.
+- What people remember about the past, they suggested, is likely to warp their judgment of the future. “We often decide that an outcome is extremely unlikely or impossible, because we are unable to imagine any chain of events that could cause it to occur. The defect, often, is in our imagination.”
+- A prediction is a judgment that involves uncertainty.
+- Man’s inability to see the power of regression to the mean leaves him blind to the nature of the world around him.
+- It confirmed Biederman’s sense that “most advances in science come not from eureka moments but from ‘hmmm, that’s funny.’”
+- In his talk to the historians, Amos described their occupational hazard: the tendency to take whatever facts they had observed (neglecting the many facts that they did not or could not observe) and make them fit neatly into a confident-sounding story:
+- This is mostly present in every historical narrative that follows an arc.
+- This “ability” to explain that which we cannot predict, even in the absence of any additional information, represents an important, though subtle, flaw in our reasoning. It leads us to believe that there is a less uncertain world than there actually is, and that we are less bright than we actually might be.
+- “He who sees the past as surprise-free is bound to have a future full of surprises.”
+- people’s ability to judge probabilities was queered by various mechanisms used by the mind when it faced uncertainty.
+- “You need to be so careful when there is one simple diagnosis that instantly pops into your mind that beautifully explains everything all at once. That’s when you need to stop and check your thinking.”
+- What struck Redelmeier wasn’t the idea that people made mistakes. Of course people made mistakes! What was so compelling is that the mistakes were predictable and systematic.
+- What struck Redelmeier wasn’t the idea that people made mistakes. Of course people made mistakes! What was so compelling is that the mistakes were predictable and systematic. They seemed ingrained in human nature.
+- The core idea of evidence-based medicine was to test the intuition of medical experts—to check the thinking of doctors against hard data. When subjected to scientific investigation, some of what passed for medical wisdom turned out to be shockingly wrong-headed.
+- Error wasn’t necessarily shameful; it was merely human.
+- What was the point of laying out the odds of a gamble, if the person taking it either didn’t believe the numbers or didn’t want to know them?
+- Not every judgment is followed by a decision, but every decision implies some judgment.
+- The understanding of any decision had to account not just for the financial consequences but for the emotional ones, too.
+- “It is the anticipation of regret that affects decisions, along with the anticipation of other consequences.”
+- When they made decisions, people did not seek to maximize utility. They sought to minimize regret.
+- the same state of affairs (objectively) can be experienced with very different degrees of misery,”
+- the same state of affairs (objectively) can be experienced with very different degrees of misery,” depending on how easy it is to imagine that things might have turned out differently.
+- “The pain that is experienced when the loss is caused by an act that modified the status quo is significantly greater than the pain that is experienced when the decision led to the retention of the status quo,”
+- “The absence of definite information concerning the outcomes of actions one has not taken is probably the single most important factor that keeps regret in life within tolerable bounds,”
+- But what was this thing that everyone had been calling “risk aversion?” It amounted to a fee that people paid, willingly, to avoid regret: a regret premium.
+- When choosing between sure things and gambles, people’s desire to avoid loss exceeded their desire to secure gain.
+- For most people, the happiness involved in receiving a desirable object is smaller than the unhappiness involved in losing the same object.”
+- The reference point was a state of mind. Even in straight gambles you could shift a person’s reference point and make a loss seem like a gain, and vice versa.
+- Simply by changing the description of a situation, and making a gain seem like a loss, you could cause people to completely flip their attitude toward risk, and turn them from risk avoiding to risk seeking.
+- People did not choose between things. They chose between descriptions of things.
+- People could be systematically wrong, and so markets could be systematically wrong, too.
+- “Science is a conversation and you have to compete for the right to be heard. And the competition has its rules.
+- “Science is a conversation and you have to compete for the right to be
+- “Science is a conversation and you have to compete for the right to be heard.
+- “We study natural stupidity instead of artificial intelligence.”
+- “The basic rules of undoing, however, apply alike to frustration and regret,” he wrote. “They require a more or less plausible path leading to the alternative state.”
+- “The present world is often surprising, i.e., less plausible than some of its alternatives,”
+- “Reality is a cloud of possibility, not a point.”
+- Any prediction, for instance, could be made to seem more believable, even as it became less likely, if it was filled with internally consistent details.
+- a strain of thought known as evolutionary psychology, which had in it the notion that the human mind, having adapted to its environment, must be very well suited to it. It certainly wouldn’t be susceptible to systematic biases.

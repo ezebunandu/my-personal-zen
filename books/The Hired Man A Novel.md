@@ -1,0 +1,16 @@
+# The Hired Man A Novel
+- I often thought I would like to be a writer, alone in a room.
+- Work with your hands, he said. That way you will be your own master, hold onto your destiny and always eat.
+- Laura arrived and took over the blue house and things began to change. In a very short time it seemed certain people forgot what had been agreed for so long, or perhaps they thought it no longer applied, or no longer applied to them, that the pact we had held to for sixteen years was somehow over.
+- Why is this important?
+- because the English love the past more than anyone else.
+- because the English love the past more than anyone else. To Laura’s way of thinking the past is a place of happiness, of safety and order, where fires, floods and wars were only ever sent to challenge the human spirit.
+- The way the English saw it, the past was always better.
+- The way the English saw it, the past was always better. But in this country our love of the past is a great deal less, unless it is a very distant past indeed, the kind nobody alive can remember, a past transformed into a song or a poem. We tolerate the present, but what we love is the future, which is about as far away from the past as it is possible to be.
+- ‘You don’t have children, Duro, otherwise you’d understand. I’ll talk to him later.’
+- I saw that it was up to me to put the conversation right again, to steer it back to where Laura would feel comfortable, something bereaved people learn to do.
+- How do you trace your way back to the place where a feeling changed, the course of a friendship turned a corner and became something else?
+- We became friends, I suppose, because we lived close to each other and it suited us and because when you are young friendships go unquestioned.
+- I guessed that Laura was one of those people who preferred the music of a lie to the discordance of truth.
+- Never ask a question you don’t need to, my father told me. To which he may as well have added: and never answer a question that hasn’t been asked.
+- Anka was born with joy in her soul, to which they feel she has no right. Behind it all, as with so many things in life and in death, lies envy. In the end it gets the better of them.

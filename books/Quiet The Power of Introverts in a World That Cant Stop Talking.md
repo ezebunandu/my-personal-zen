@@ -1,0 +1,11 @@
+# Quiet The Power of Introverts in a World That Cant Stop Talking
+- Second, pay attention to the work you gravitate to.
+- First, think back to what you loved to do when you were a child.
+- there are three key steps to identifying your own core personal projects.
+- Finally, pay attention to what you envy.
+- the best way to act out of character is to stay as true to yourself as you possibly can—starting by creating as many “restorative niches” as possible in your daily life.
+- A Free Trait Agreement acknowledges that we’ll each act out of character some of the time—in exchange for being ourselves the rest of the time.
+- Probably the most common—and damaging—misunderstanding about personality type is that introverts are antisocial and extroverts are pro-social. But as we’ve seen, neither formulation is correct; introverts and extroverts are differently social.
+- Participation places a very different set of demands on the brain than observing does.
+- Participation places a very different set of demands on the brain than observing does. It requires a kind of mental multitasking: the ability to process a lot of short-term information at once without becoming distracted or overly stressed.
+- bear in mind that appearance is not reality. Some people act like extroverts, but the effort costs them in energy, authenticity, and even physical health.

@@ -1,0 +1,160 @@
+# Thinking Fast and Slow
+- does it mean then, that one can train to be a good professional in an area he/she lacks an intuitive understanding...that he/she can over-ride such intuitive deficiency by switching on their professional minds?
+- The notion that we have limited access to the workings of our minds is difficult to accept because, naturally, it is alien to our experience, but it is true: you know far less about yourself than you feel you do.
+- You have no choice but to accept that the major conclusions of these studies are true.
+- Err, I do have a choice in what conclusions I consider to be or not to be valid.
+- Words that you have seen before become easier to see again—you can identify them better than other words when they are shown very briefly or masked by noise, and you will be quicker (by a few hundredths of a second) to read them than to read other words.
+- It appears to be a feature of System 1 that cognitive ease is associated with good feelings.
+- a statement that can explain two contradictory outcomes explains nothing at all.
+- We are evidently ready from birth to have impressions of causality, which do not depend on reasoning about patterns of causation. They are products of System 1.
+- Your mind is ready and even eager to identify agents, assign them personality traits and specific intentions, and view their actions as expressing individual propensities.
+- and so one's interpretation of uncertain information will likely skew towards things that lie within the sphere of one's experiences.
+- Gilbert proposed that understanding a statement must begin with an attempt to believe it: you must first know what the idea would mean if it were true. Only then can you decide whether or not to unbelieve it.
+-  Have I then, ever encountered any ideas that I rejected concurrently as I formed an understanding of them?
+- Why first impressions matter.
+- often, employees just line up behind and parrot the opinion of vocal execs. This kind of practice will help ensure people express their true positions.
+- When information is scarce, system 1 operates as a machine for jumping to conclusions.
+- Todorov has found that people judge competence by combining the two dimensions of strength and trustworthiness. The faces that exude competence combine a strong chin with a slight confident-appearing smile. There is no evidence that these facial features actually predict how well politicians will perform in office.
+- The normal state of your mind is that you have intuitive feelings about almost anything that comes to mind.
+- The normal state of your mind is that you have intuitive feelings about almost anything that comes your way.
+- Researchers who pick too small a sample leave themselves at the mercy of sampling luck.
+- The law of small numbers is a manifestation of a general bias that favors certainty over doubt,
+- Randomness means events sometimes have no clear causal chain.
+- The selective activation of compatible memories explains anchoring:
+- Very very important!!!
+- a message, unless it is immediately rejected as a lie, will have the same effect on the associative system regardless of its reliability.
+- The main moral of priming research is that our thoughts and our behavior are influenced, much more than we know or
+- The main moral of priming research is that our thoughts and our behavior are influenced, much more than we know or want, by the environment of the moment.
+- you should assume that any number that is on the table has had an anchoring effect on you, and if the stakes are high you should mobilize yourself (your System 2) to combat the effect.
+- people’s emotional evaluations of outcomes, and the bodily states and the approach and avoidance tendencies associated with them, all play a central role in guiding decision making.
+- “The emotional tail wags the rational dog.” The affect heuristic simplifies our lives by creating a world that is much tidier than reality.
+- The emotional tail wags the rational dog!
+- Even when the heuristic has some validity, exclusive reliance on it is associated with grave sins against statistical logic.
+- base-rate information will always be neglected when information
+- base-rate information will always be neglected when information about the specific instance is available,
+- When you have doubts about the quality of information then let your judgement of probability stay close to the base rates.
+- This is a trap for forecasters and their clients: adding detail to scenarios makes them more persuasive, but less likely to come true.
+- Resistance to stereotyping is a laudable moral position, but the simplistic idea that the resistance is costless is wrong. The costs are worth paying to achieve a better society, but denying that the costs exist, while satisfying
+- Resistance to stereotyping is a laudable moral position, but the simplistic idea that the resistance is costless is wrong. The costs are worth paying to achieve a better society, but denying that the costs exist, while satisfying to the soul and politically correct, is not scientifically defensible. Reliance on the affect heuristic is common in politically charged arguments.
+- Resistance to stereotyping is a laudable moral position, but the simplistic idea that the resistance is costless is wrong. The costs are worth paying to achieve a better society, but denying that the costs exist, while satisfying
+- Resistance to stereotyping is a laudable moral position, but the simplistic idea that the resistance is costless is wrong. The costs are worth paying to achieve a better society, but denying that the costs exist, while satisfying to the soul and politically correct, is not scientifically defensible.
+- Stereotypes can be useful and there is a cost to ignoring whatever information stereotypes encode.
+- If your predictions are unbiased, you will never have the satisfying experience of correctly calling an extreme case.
+- A preference for unbiased predictions is justified if all errors of prediction are treated alike, regardless of their direction. But there are situations in which one type of error is much worse than another.
+- rational person will invest a large sum in an enterprise that is most likely to fail if the rewards of success are large enough, without deluding herself about the chances of success.
+- A rational person will invest a large sum in an enterprise that is most likely to fail if the rewards of success are large enough, without deluding herself about the chances of success.
+- A rational person will invest a large sum in an enterprise that is most likely to fail if the rewards of success are large enough, without deluding herself about the chances of success.
+- Following our intuitions is more natural, and somehow more pleasant, than acting against them.
+- ...i.e. the less you know, the better you think you understand what's happening.
+- The core of the illusion is that we believe we understand the past, which implies that the future also should be knowable, but in fact we understand the past less than we believe we do.
+- Outcome bias makes it difficult to evaluate a decision objectively.
+- Knowing the importance of luck, you should be particularly suspicious when highly consistent patterns emerge from the comparison of successful and less successful firms. In the presence of randomness, regular patterns can only be mirages.
+- The illusion of skill is not only an individual aberration; it is deeply ingrained in the culture of the industry. Facts that challenge such basic assumptions—and thereby threaten people’s livelihood and self-esteem—are simply not absorbed.
+- In the finance industry, that is.
+- professional culture. We know that people can maintain an unshakable faith in any proposition, however absurd, when they are sustained by a community of like-minded believers.
+- illusions of validity and skill are supported by a powerful professional culture. We know that people can maintain an unshakable faith in any proposition, however absurd, when they are sustained by a community of like-minded believers.
+- the illusions of validity and skill are supported by a powerful professional culture. We know that people can maintain an unshakable faith in any proposition, however absurd, when they are sustained by a community of like-minded believers.
+- reality emerges from the interactions of many different agents and forces, including blind luck, often producing large and unpredictable outcomes.
+- .
+- Errors of prediction are inevitable because the world is unpredictable.
+- He was more willing to trust experts who claim an intuition because, as he told me, true experts know the limits of their knowledge. I argued that there are many pseudo-experts who have no idea that they do not know what they are doing (the illusion of validity), and that as a general proposition subjective confidence is commonly too high and often uninformative.
+- True experts know the limits of their knowledge.
+- The associative machine is set to suppress doubt and to evoke ideas and information that are compatible with the currently dominant story. A mind that follows WYSIATI will achieve high confidence much too easily by ignoring what it does not know.
+- the confidence that people have in their intuitions is not a reliable guide to their validity. In other words, do not trust anyone—including yourself—to tell you how much you should trust their judgment.
+- President Truman famously asked for a “one-armed economist” who would take a clear stand; he was sick and tired of economists who kept saying, “On the other hand…”
+- Hahahaha!
+- As Nassim Taleb has argued, inadequate appreciation of the uncertainty of the environment inevitably leads economic agents to take risks they should avoid.
+- The world is certainly a whole lot more random and less deterministic than we would like to think.
+- Extreme uncertainty is paralyzing under dangerous circumstances, and the admission that one is merely guessing is especially unacceptable when the stakes are high. Acting on pretended knowledge is often the preferred solution.
+- The effects of high optimism on decision making are, at best, a mixed blessing, but the contribution of optimism to good implementation is certainly positive.
+- The effects of high optimism on decision making are, at best, a mixed blessing, but the contribution of optimism to good implementation is certainly positive. The main benefit of optimism is resilience in the face of setbacks.
+- “Imagine that we are a year into the future. We implemented the plan as it now exists. The outcome was a disaster.
+- “Imagine that we are a year into the future. We implemented the plan as it now exists. The outcome was a disaster. Please take 5 to 10 minutes to write a brief history of that disaster.”
+- The premortem as a way to counter optimism.
+- To a psychologist, it is self-evident that people are neither fully rational nor completely selfish, and that their tastes are anything but stable.
+- framing effects: the large changes of preferences that are sometimes caused by inconsequential variations in the wording of a choice problem.
+- Framing effects.
+- You just like winning and dislike losing—and you almost certainly dislike losing more than you like winning.
+- Organisms that treat threats as more urgent than opportunities have a better chance to survive and reproduce.
+- This asymmetry between the power of positive and negative expectations or experiences has an evolutionary history. Organisms that treat threats as more urgent than opportunities have a better chance to survive and reproduce.
+- Losses loom larger than gains, thus people are loss averse.
+- Scientists use theories as a bag of working tools, and they will not take on the burden of a heavier bag unless the new tools are very useful.
+- the disadvantages of a change loom larger than its advantages, inducing a bias that favors the status quo.
+- Loss aversion implies only that choices are strongly biased in favor of the reference situation (and generally biased to favor small rather than large changes).
+- The magic of the market did not work for a good that the owners expected to use.
+- the idea that people evaluate many outcomes as gains and losses, and that losses loom larger than gains, surprises no one. Amos and I often joked that we were engaged in studying a subject about which our grandmothers knew a great deal.
+- “Bad emotions, bad parents, and bad feedback have more impact than good ones, and bad information is processed more thoroughly than good. The self is more motivated to avoid bad self-definitions than to pursue good ones. Bad impressions and bad stereotypes are quicker to form and more resistant to disconfirmation than good ones.”
+- Conservatism may be seen to be loss aversion at core.
+- When you pay attention to a threat, you worry—and the decision weights reflect how much you worry. Because of the possibility effect, the worry is not proportional to the probability of the threat. Reducing or mitigating the risk is not adequate; to eliminate the worry the probability
+- When you pay attention to a threat, you worry—and the decision weights reflect how much you worry. Because of the possibility effect, the worry is not proportional to the probability of the threat. Reducing or mitigating the risk is not adequate; to eliminate the worry the probability must be brought down to zero.
+- A lottery ticket is the ultimate example of the possibility effect. Without a ticket you cannot win, with a ticket you have a chance, and whether the chance is tiny or merely small matters little.
+- Lottery tickets as an example of the possibility effect.
+- Many unfortunate human situations unfold in the top right cell. This is where people who face very bad options take desperate gambles, accepting a high probability of making things worse in exchange for a small hope of avoiding a large loss. Risk taking of this kind often turns manageable failures into disasters. The thought of accepting the large sure loss is too painful, and the hope of complete relief too enticing, to make the sensible decision that it is time to cut one’s losses. This is where businesses that are losing ground to a superior technology waste their remaining assets in futile attempts to catch up. Because
+- Many unfortunate human situations unfold in the top right cell. This is where people who face very bad options take desperate gambles, accepting a high probability of making things worse in exchange for a small hope of avoiding a large loss. Risk taking of this kind often turns manageable failures into disasters. The thought of accepting the large sure loss is too painful, and the hope of complete relief too enticing, to make the sensible decision that it is time to cut one’s losses.
+- Plaintiffs with frivolous claims are likely to obtain a more generous settlement than the statistics of the situation justify.
+- The idea of denominator neglect helps explain why different ways of communicating risks vary so much in their effects.
+- Different ways of communicating risks can influence how strongly risks are perceived.
+- people tend to be risk averse in the domain of gains and risk seeking in the domain of losses.
+- it helps us see the logical consistency of Human preferences for what it is—a hopeless mirage.
+- we tend to make decisions as problems arise, even when we are specifically instructed to consider them jointly. We have neither the inclination nor the mental resources to enforce consistency on our preferences, and our preferences are not magically set to be coherent, as they are in the rational-agent model.
+- the mantra that will get you significantly closer to economic rationality: you win a few, you lose a few. The main purpose of the mantra is to control your emotional response when you do lose.
+- The instructions for broad framing of a decision included the phrases “imagine yourself as a trader,” “you do this all the time,” and “treat it as one of many monetary decisions, which will sum together to produce a ‘portfolio.’”
+- Broad framing as a way to overcome risk aversion for small gambles.
+- Individual investors can avoid that curse, achieving the emotional benefits of broad framing while also saving time and agony, by reducing the frequency with which they check how well their investments are doing.
+- Practical advice!
+- Investors who get aggregated feedback receive such news much less often and are likely to be less risk averse and to end up richer. You are also less prone to useless churning of your portfolio if you don’t know how every stock in it is doing every day (or every week or even every month). A commitment not to change one’s position for several periods (the equivalent of “locking in” an investment) improves financial performance.
+- Decision makers who are prone to narrow framing construct a preference every time they face a risky choice. They would do better by having a risk policy that they routinely apply whenever a relevant problem arises.
+- Have a risk policy that you consistently follow whenever decisions arise.
+- A risk policy that aggregates decisions is analogous to the outside view of planning problems that I discussed earlier. The outside view shifts the focus from the specifics of the current situation to the statistics of outcomes in similar situations. The outside view is a broad frame for thinking about plans. A risk policy is a broad frame that embeds a particular risky choice in a set of similar choices.
+- The combination of the outside view with a risk policy should be the goal.
+- we refuse to cut losses when doing so would admit failure, we are biased against actions that could lead to regret, and we draw an illusory but sharp distinction between omission and commission, not doing and doing, because the sense of responsibility is greater for one than for the other. The
+- we refuse to cut losses when doing so would admit failure, we are biased against actions that could lead to regret, and we draw an illusory but sharp distinction between omission and commission, not doing and doing, because the sense of responsibility is greater for one than for the other.
+- The emotions that people attach to the state of their mental accounts are not acknowledged in standard economic theory.
+- Boards of directors are well aware of these conflicts and often replace a CEO who is encumbered by prior decisions and reluctant to cut losses. The members of the board do not necessarily believe that the new CEO is more competent than the one she replaces. They do know that she does not carry the same mental accounts and is therefore better able to ignore the sunk costs of past investments in evaluating current opportunities.
+- Why boards replace CEOs.
+- Regret and blame are both evoked by a comparison to a norm, but the relevant norms are different.
+- people expect to have stronger emotional reactions (including regret) to an outcome that is produced by action than to the same outcome when it is produced by inaction.
+- Interesting!
+- The taboo tradeoff against accepting any increase in risk is not an efficient way to use the safety budget.
+- Susceptibility to regret, like susceptibility to fainting spells, is a fact of life to which one must adjust. If you are an investor, sufficiently rich and cautious at heart, you may be able to afford the luxury of a portfolio that minimizes the expectation of regret even if it does not maximize the accrual of wealth.
+- You can also take precautions that will inoculate you against regret. Perhaps the most useful is to be explicit about the anticipation of regret. If you can remember when things go badly that you considered the possibility of regret carefully before deciding, you are likely to experience less of it.
+- rationality is generally served by broader and more comprehensive frames, and joint evaluation is obviously broader than single evaluation. Of course, you should be wary of joint evaluation when someone who controls what you see has a vested interest in what you choose.
+- I was surprised to learn from Cass Sunstein that jurors who are to assess punitive damages are explicitly prohibited from considering other cases. The legal system, contrary to psychological common sense, favors single evaluation.
+- losses evokes stronger negative feelings than costs.
+- Their psychology was sound: people will more readily forgo a discount than pay a surcharge. The two may be economically equivalent, but they are not emotionally equivalent.
+- Reframing is effortful and System 2 is normally lazy. Unless there is an obvious reason to do otherwise, most of us passively accept decision problems as they are framed and therefore rarely have an opportunity to discover the extent to which our preferences are frame-bound rather than reality-bound.
+- the framing experiment reveals that risk-averse and risk-seeking preferences are not reality-bound. Preferences between the same objective outcomes reverse with different formulations.
+- we must get used to the idea that even important decisions are influenced, if not governed, by System 1.
+- Nudge, which is the basic manual for applying behavioral economics to policy.
+- It also suggested that, at least in some cases, experienced utility is the criterion by which a decision should be assessed.
+- i.e. We often come to decisions not by evaluation of decision utilities but by the experienced utility .
+- Memories are all we get to keep from our experience of living, and the only perspective that we can adopt as we think about our lives is therefore that of the remembering self.
+- Confusing experience with the memory of it is a compelling cognitive illusion—and it is the substitution that makes us believe a past experience can be ruined. The experiencing self does not have a voice. The remembering self is sometimes wrong, but it is the one that keeps score and governs what we learn from living, and it is the one that makes decisions.
+- Confusing experience with the memory of it is a compelling cognitive illusion—and it is the substitution that makes us believe a past experience can be ruined. The experiencing self does not have a voice. The remembering self is sometimes wrong, but it is the one that keeps score and governs what we learn from living, and it is the one that makes decisions. What we learn from the past is to maximize the qualities of our future memories, not necessarily of our future experience.
+- The tyranny of the remembering self.
+- we cannot fully trust our preferences to reflect our interests, even if they are based on personal experience, and even if the memory of that experience was laid down within the last quarter of an hour!
+- we cannot fully trust our preferences to reflect our interests, even if they are based on personal experience, and even if the memory of that experience was laid down within the last quarter of an hour! Tastes and decisions are shaped by memories, and the memories can be wrong.
+- A story is about significant events and memorable moments, not about time passing. Duration neglect is normal in a story, and the ending often defines its character.
+- The use of time is one of the areas of life over which people have some control. Few individuals can will themselves to have a sunnier disposition, but some may be able to arrange their lives to spend less of their day commuting, and more time doing things they enjoy with people they like.
+- It is only a slight exaggeration to say that happiness is the experience of spending time with people you love and who love you.
+- The conclusion is that being poor makes one miserable, and that being rich may enhance one’s life satisfaction, but does not (on average) improve experienced well-being.
+- the responses to global well-being questions should be taken with a grain of salt. But
+- the responses to global well-being questions should be taken with a grain of salt.
+- Experienced well-being is on average unaffected by marriage, not because marriage makes no difference to happiness but because it changes some aspects of life for the better and others for the worse.
+- A disposition for well-being is as heritable as height or intelligence,
+- one recipe for a dissatisfied adulthood is setting goals that are especially difficult to attain.
+- The goals that people set for themselves are so important to what they do and how they feel about it that an exclusive focus on experienced well-being is not tenable. We cannot hold a concept of well-being that ignores what people want.
+- Any aspect of life to which attention is directed will loom large in a global evaluation.
+- Adaptation to a new situation, whether good or bad, consists in large part of thinking less and less about it.
+- The focusing illusion (which Gilbert and Wilson call focalism) is a rich source of miswanting. In particular, it makes us prone to exaggerate the effect of significant purchases or changed circumstances on our future well-being.
+- As interpreted by the important Chicago school of economics, faith in human rationality is closely linked to an ideology in which it is unnecessary and even immoral to protect people against their choices. Rational
+- As interpreted by the important Chicago school of economics, faith in human rationality is closely linked to an ideology in which it is unnecessary and even immoral to protect people against their choices.
+- For behavioral economists, however, freedom has a cost, which is borne by individuals who make bad choices, and by a society that feels obligated to help
+- for true believers in human rationality. No behavioral economist favors a state that will force its citizens to eat a balanced diet and to watch only television programs that are good for the soul. For
+- For behavioral economists, however, freedom has a cost, which is borne by individuals who make bad choices, and by a society that feels obligated to help them.
+- Thaler and Sunstein advocate a position of libertarian paternalism, in which the state and other institutions are allowed to nudge people to make decisions that serve their own long-term interests.
+- The attentive System 2 is who we think we are. System 2 articulates judgments and makes choices, but it often endorses or rationalizes ideas and feelings that were generated by System 1.
+- System 2 is not a paragon of rationality. Its abilities are limited and so is the knowledge to which it has access. We do not always think straight when we reason, and the errors are not always due to intrusive and incorrect intuitions. Often we make mistakes because we (our System 2) do not know any better.
+- The way to block errors that originate in System 1 is simple in principle: recognize the signs that you are in a cognitive minefield, slow down, and ask for reinforcement from System 2. This
+- The way to block errors that originate in System 1 is simple in principle: recognize the signs that you are in a cognitive minefield, slow down, and ask for reinforcement from System 2.
+- Whatever else it produces, an organization is a factory that manufactures judgments and decisions. Every factory must have ways to ensure the quality of its products in the initial design, in fabrication, and in final inspections. The corresponding stages in the production of decisions are the framing of the problem that is to be solved, the collection of relevant information leading to a decision, and reflection and review.

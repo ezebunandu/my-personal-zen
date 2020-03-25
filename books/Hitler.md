@@ -1,0 +1,77 @@
+# Hitler
+- the stab-in-the-back legend, which held that the German army at the front had been undermined and cheated of victory by traitorous Jews and Social Democrats at home.
+- “I suddenly had the opportunity to talk to a larger audience, and what I had always instinctively assumed without knowing was confirmed: I could ‘speak well.’
+- arguing that political anti-Semitism should not be based on outbursts of emotion, which would only lead to pogroms.
+- Hitler, too, preferred what he called “the anti-Semitism of reason” to “emotional anti-Semitism.”
+- the special conditions of the immediate post-war years in both Bavaria and the German Reich were also crucial: without the explosive mixture of economic misery, social instability and collective trauma, the populist agitator Hitler would never have been able to work his way out of anonymity to become a famous politician.
+- “Who cares whether they laugh at us or insult us, treating us as fools or criminals?” Hitler wrote in Mein Kampf. “The point is that they talk about us and constantly think about us.”
+- But perhaps it was the monotonous repetition of his accusations, vows of revenge and promises for the future that was the key to his success.
+- who liked to depict himself as a man of the people, in fact despised the masses, which he regarded as nothing more than a tool to be manipulated to achieve his political ambitions.
+- Hitler and his audience were on the same wavelength. Both were carried away by the racist wishful thinking of a fully homogenous ethnic community.
+- despite the fact that their propaganda was explicitly directed at blue-collar workers, the Nazis did not do well with that demographic group.
+- The ability to adapt his behaviour and speech to almost any given audience demonstrated his second greatest talent after his rhetorical skills: his acting ability.
+- As late as May 1921, he had still admitted to the editor-in-chief of the pan-Germanic Deutsche Zeitung newspaper, Max Maurenbrecher, that there were limits to his abilities. “He was not the Führer and statesman who could save the fatherland from sinking into chaos,” Maurenbrecher reported Hitler saying, “but the agitator who could gather the masses…He needed someone bigger behind him, whose commands he could orient himself around.”
+- even before sitting down to write Mein Kampf, he started revising his past to make it conform with his sense of being on a national mission.
+- Initially uncertain and clumsy in his personal behaviour, he grew step by step into the role of the party leader who dispatched all his competitors for power and collected a horde of blindly loyal followers. Hitler refined his rhetorical and acting repertoire until he was comfortable that his posturing would produce the desired effect.
+- Hitler had “no clear goals and is pushed by backstage figures who increasingly called for a ‘deed’ of salvation,”
+- The political Right immediately launched an emotionally charged campaign accusing Stresemann and his grand coalition of capitulating to foreign interests.
+- With Ludendorff backing him, the leader of the NSDAP could realistically hope that the Reichswehr would support his plans for a coup d’état. The events of 1 May had taught Hitler that without military
+- With Ludendorff backing him, the leader of the NSDAP could realistically hope that the Reichswehr would support his plans for a coup d’état. The events of 1 May had taught Hitler that without military support, all his plans were condemned to failure from the very start.
+- For Hitler, a five-year apprenticeship was over. He had gone from being the “drummer” for a movement to becoming the “Führer” of an anticipated “national revolution.”
+- Without Landsberg, there would have been no Mein Kampf, Hitler recalled in 1942, since it was only there that he had achieved conceptual clarity about things “he had largely intuited” before.
+- Perhaps it was Rosenberg’s obvious lack of leadership qualities that appealed to Hitler, who did not want a competitor appearing on the scene while he was away.
+- Some of Hitler’s followers even suspected that he deliberately encouraged the disputes “in order to secure his position at the very top.”52 Indeed, Hitler’s behaviour while in Landsberg seems to have been an example of a technique of rule that he would develop to perfection as Reich chancellor. Divide and conquer was the best way to cement his own claim to leadership.
+- It is a myth that Hitler often dictated passages until the small hours of the morning to Hess, who, serving as his secretary, typed them up. Many of Hitler’s biographers have simply passed on this legend from the memoirs of prison guard Otto Lurker.
+- the racist pamphlet by American carmaker Henry Ford, “The International Jew: The World’s Foremost Problem,”
+- ?
+- That seems to have been typical of Hitler’s reading habits in Landsberg: he did not read in order to test but rather in order to confirm his opinions. Hitler was constantly in search of mosaic stones that could be added to his already existing world view.
+- Hitler saw his racial theory as being based on the laws of nature and particularly a supposed natural tendency towards racial purity. “The fox is always a fox, the goose a goose and the tiger a tiger,” Hitler argued. For him, any mixing of races was a violation of the “iron logic of nature” that would automatically lead to decadence and decay. “The reason all the great cultures of the past collapsed,” Hitler proposed, “was that the original creative race died of blood poisoning.”
+- Hitler was keen to show that, despite his incomplete formal education, he was just as well read and knowledgeable as any university professor.82
+- Hitler now shifted his emphasis to the idea that a nation with an expanding population like Germany needed territory large enough to feed its people and continue to increase its political power.
+- the German people’s right “to an appropriate territory on this earth”
+- Right? What arrogance!
+- The Austrian government stuck to its view that by “emigrating” to Bavaria and serving in the Bavarian army Hitler had forfeited his Austrian citizenship.
+- Hitler was only able to launch his second political career because his adversaries criminally underestimated him.
+- When internal disagreements did not call his leadership into question, however, Hitler refused to get involved. Indeed, his leadership style encouraged rivalries between his subordinates. In his crudely Darwinist world view, such feuds were part of a process of natural selection that would favour the strongest and most capable of his followers.
+- foreign policy was “the art of securing a people its necessary living space.”
+- “There can only be one revolution, the revolution of race,” he proclaimed. “There is no economic, political or social revolution. The fundamental struggle is always the same: the struggle of a racially inferior lower class against a dominant high race. The day the higher race forgets this iron law, it has lost the battle.”
+- privileged the rule of the majority over “the authority of personality.”
+- On the whole, however, the NSDAP was more of a party for the entire German people than any of its competitors, collecting the social protest vote from all sections of society.
+- National Socialism pursued “a politics of the grotesque…replete with Salvation Army allures, reflexive mass paroxysms, amusement-park chiming, cries of hallelujah and mantra-like repetition of monotonous slogans until everyone foamed at the mouth.”
+- The military hoped to co-opt the Nazis’ enthusiasm for the armed forces for their own ends and recruit party members for the national defence. Military leaders also thought that involving the NSDAP would exert a moderating, domesticating influence on the movement.
+- Hitler was, on the one hand, a “master of emotional ecstasy combining the techniques of the trained mass psychologist and someone inspired by the primeval passion that comes from the exuberance of mass emotion.” On the other hand, Heuss regarded Hitler simply as “a politician who wants power.”
+- whether Hitler masturbated, as young men in his situation are wont to do. Onanism,
+- “Tell me who praises you, and I’ll tell who you are!” Goebbels sneered, adding that Hindenburg was drawing praise from the “gutter press in Berlin and the party of deserters.”
+- Hindenburg categorically refused Hitler’s demand, declaring that “in front of God, his conscience and his country he could not justify giving the entire power of government to a single party and especially not one so hostile towards people who thought differently.”
+- there were powerful tendencies, deeply anchored in German history, which promoted the success of National Socialism.
+- the secret to Hitler’s success lay in the mutual identification between speaker and audience—in the exchange of individual and collective sensitivities and neuroses.
+- Hitler’s prodigious memory ensured no insult would ever be forgotten. The deeply insecure arriviste was a man who held a grudge.
+- Even intelligent, strong-willed people found it difficult not to be moved and convinced by Hitler.
+- What his admirers overlooked was the fact that despite his alleged infallible instincts Hitler made numerous blunders on the road to power and ultimately only achieved his goal because others opened the door to the Chancellery for him.
+- This provides another example of Hitler’s peculiar dual personality: a dictator who kept other people at a distance but sought out company to avoid being alone with himself.
+- almost all institutions and social groups within Germany bent over backwards to accommodate and support the new regime. The process of bringing things and people “into line”—Gleichschaltung—would never have gone so smoothly and successfully had it not corresponded with a widespread wish to be brought into line.
+- The chancellor sounded tones of moderation concerning his foreign policy. A Germany that had recovered its equality with other states, Hitler promised, would stand for “the preservation and solidification of peace, which the world needs now more than ever.”
+- The decree of 28 February was, in the words of one German historian, “the emergency law upon which the National Socialist dictatorship based its rule until it itself collapsed,”
+- The majority of the new party members were bandwagon jumpers who joined in hopes of improving their career opportunities, not out of political conviction.
+- The goal, Goebbels stated with utter frankness, was that “there should be only one opinion, one party and one faith in Germany.”
+- If someone tries to criticise me for not enlisting the regular courts, I can only say: in that hour, I was responsible for the fate of the German nation and was therefore the supreme judge of the German people.”
+- What does this even mean?
+- In comparison with the “dirty swindler and murderous charlatan” Hitler, Mann wrote, Robespierre was positively honourable.
+- He continued his strategy of numbing the vigilance of Europe’s leading powers with assurances of his peaceful intentions while secretly pursuing his rearmament policies.
+- As realistic as he was about the scope of his foreign policy in the first years of his regime, he increasingly ignored Bismarck’s axiom that politics was the art of the possible.
+- Yet as soon as people realised that the West again would do nothing but issue verbal protests, Germany was swept by a wave of national euphoria. Admiration for Hitler’s daring was mixed with relief that the enterprise had had a happy ending.
+- The dangers of a policy of appeasement!
+- Men’s social existence was not to determine their consciousness, as Marxist teaching had it: their consciousness was to determine their social being.
+- “In matters of life and death, sympathy is the least appropriate emotion towards the dead in spirit,” the authors argued. “There is no sympathy without suffering.”
+- the propaganda minister as well as most German people present mistook the traditional Olympic raised-right-arm salute for the Nazi “German greeting.”
+- This not only explains why the regime was so dynamic but also why it became more and more radical. In competing
+- This not only explains why the regime was so dynamic but also why it became more and more radical. In competing for the dictator’s favour, his paladins tried to trump one another with ever more extreme demands and measures.
+- the Gestapo’s efficiency depended on the participation of ordinary Germans who were willing to inform on people they did not like.85
+- “Only if a new basic law of state was short enough for schoolchildren to learn by heart, would it be advantageous to revise the whole procedure of the Reich legislature.”
+- Hitler was exempt from taxes “due to his constitutional status.”
+- Hitler was less interested in the financing of the project. When asked about who was going to pay for all the construction work, Goebbels recorded: “The Führer doesn’t want to talk about money. Build, build! It will get paid for. Friedrich the Great did not worry about money when he built Sanssouci.”
+- Christianity is the slogan under which we will eradicate the preachers, just as socialism was the one under which we destroyed the Marxist bigwigs.”
+- Just as he had always gone to the limit of what he could get away with in foreign policy, he gradually, step by step, worked his way towards radical measures of persecution in his anti-Jewish policies.
+- “Hitler succeeds at everything,” an observer from the Rhineland Palatinate wrote. “He can do what he wants because everyone gives in to him.
+- Appeasement!
+- Hitler’s seizure of Prague was a wake-up call to leaders in London, where the British government realised that it had been duped and that Hitler’s promises were not worth the paper they were written on. The policy of appeasement and the idea that Hitler could be restrained by treaties and conciliation were revealed as utterly misguided.

@@ -1,0 +1,47 @@
+# Nudge
+- The paternalistic aspect lies in the claim that it is legitimate for choice architects to try to influence people’s behavior in order to make their lives longer, healthier, and better. In
+- A nudge, as we will use the term, is any aspect of the choice architecture that alters people’s behavior in a predictable way without forbidding any options or significantly changing their economic incentives
+- the idea of homo economicus, or economic man—the notion that each of us thinks and chooses unfailingly well,
+- setting default options, and other similar seemingly trivial menu-changing strategies, can have huge effects on outcomes, from increasing savings to improving health care to providing organs for lifesaving transplant operations.
+- a nudge is any factor that significantly alters the behavior of Humans, even though it would be ignored by Econs.
+- It seems reasonable to say that people make good choices in contexts in which they have experience, good information, and prompt feedback—say, choosing among ice cream flavors.
+- They do less well in contexts in which they are inexperienced and poorly informed, and in which feedback is slow or infrequent—
+- How can people be simultaneously so smart and so dumb?
+- Being truly bilingual means that you speak two languages using the Automatic System.
+- Biased assessments of risk can perversely influence how we prepare for and respond to crises, business choices, and the political process.
+- When events are determined by chance, such as a sequence of coin tosses, people expect the resulting string of heads and tails to be representative of what they think of as random. Unfortunately, people do not have accurate perceptions of what random sequences look like. When they see the outcomes of random processes, they often detect patterns that they think have great meaning but in fact are just due to chance.
+- diagnosed with lung cancer and heart disease than most nonsmokers. Lotteries are successful partly because of unrealistic optimism.12
+- Lotteries are successful partly because of unrealistic optimism.12
+- Loss aversion helps produce inertia, meaning a strong desire to stick with your current holdings. If you are reluctant to give up what you have because you do not want to incur losses, then you will turn down trades you might have otherwise made.
+- As with Supreme Court Justice Potter Stewart’s “I know it when I see it” adage about pornography, temptation is easier to recognize than to define.
+- While competition does drive down prices, it does not always lead to an outcome that is best for consumers.
+- one of the most effective ways to nudge (for good or evil) is via social influence.
+- Social influences come in two basic categories. The first involves information. If many people do something or think something, their actions and their thoughts convey information about what might be best for you to do or think.
+- Social influences come in two basic categories. The first involves information. If many people do something or think something, their actions and their thoughts convey information about what might be best for you to do or think. The second involves peer pressure. If you care about what other people think about you (perhaps in the mistaken belief that they are paying some attention to what you are doing—see below), then you might go along with the crowd to avoid their wrath or curry their favor.
+- Sometimes people will go along with the group even when they think, or know, that everyone else has blundered.
+- The clear lesson here is that consistent and unwavering people, in the private or public sector, can move groups and practices in their preferred direction.
+- The moral is that people are paying less attention to you than you believe. If you have a stain on your shirt, don’t worry, they probably won’t notice. But in part because people do think that everyone has their eyes fixed on them, they conform to what they think people expect.
+- In many domains people are tempted to think, after the fact, that an outcome was entirely predictable, and that the success of a musician, an actor, an author, or a politician was inevitable in light of his or her skills and characteristics. Beware of that temptation. Small interventions and even coincidences, at a key stage, can produce large variations in the outcome.
+- If you want to nudge people into socially desirable behavior, do not, by any means, let them know that their current actions are better than the social norm.
+- Those who engage in surveys want to catalogue behavior, not to influence it. But social scientists have discovered an odd fact: when they measure people’s intentions, they affect people’s conduct.
+- It turns out that if you ask people, the day before the election, whether they intend to vote, you can increase the probability of their voting by as much as 25 percent!
+- Unfortunately, some of life’s most important decisions do not come with many opportunities to practice.
+- For example, we usually get feedback only on the options we select, not the ones we reject. Unless people go out of their way to experiment, they may never learn about alternatives to the familiar ones.
+- When people have a hard time predicting how their choices will end up affecting their lives, they have less to gain by numerous options and perhaps even by choosing for themselves. A nudge might be welcomed.
+- Those doors are bad architecture because they violate a simple psychological principle with a fancy name: stimulus response compatibility. The idea is that you want the signal you receive (the stimulus) to be consistent with the desired action. When there are inconsistencies, performance suffers and people blunder.
+- many people will take whatever option requires the least effort, or the path of least resistance.
+- for a given choice, there is a default option—an option that will obtain if the chooser does nothing—then we can expect a large number of people to end up with that option, whether or not it is good for them.
+- for any node of a choice architecture system, there must be an associated rule that determines what happens to the decision maker if she does nothing.
+- The choice architect can force the choosers to make their own choice. We call this approach “required choice” or “mandated choice.”
+- A good system of choice architecture helps people to improve their ability to map and hence to select options that will make them better off. One way to do this is to make the information about various options more comprehensible, by transforming numerical information into units that translate more readily into actual use.
+- Structuring choice sometimes means helping people to learn, so they can later make better choices on their own.
+- choice architects must think about incentives when they design a system. Sensible architects will put the right incentives on the right people.
+- In the twentieth century, the combination of rising life expectancies and geographical dispersion of families made it necessary for people to think about providing for their own retirement income rather than depending on their children to do it.
+- We interpret the statement “I should be saving (or dieting, or exercising) more” to imply that people would be open to strategies that would help them achieve these goals. In other words, they are open to a nudge. They might even be grateful for one.
+- With more options, the process becomes more confusing and difficult, and some people will refuse to choose at all.
+- The paternalistic aspect lies in the claim that it is legitimate for choice architects to try to influence people’s behavior in order to make their lives longer, healthier, and better.
+- Libertarian paternalism is a relatively weak, soft, and nonintrusive type of paternalism because choices are not blocked, fenced off, or significantly burdened.
+- many people seem at least implicitly committed to the idea of homo economicus, or economic man—the notion that each of us thinks and chooses unfailingly well,
+- The false assumption is that almost all people, almost all of the time, make choices that are in their best interest or at the very least are better than the choices that would be made by someone else.
+- The first misconception is that it is possible to avoid influencing people’s choices.
+- The second misconception is that paternalism always involves coercion.

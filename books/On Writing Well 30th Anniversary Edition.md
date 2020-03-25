@@ -1,0 +1,58 @@
+# On Writing Well 30th Anniversary Edition
+- rewriting is the essence of writing.
+- rewriting is the essence of writing. I pointed out that professional writers rewrite their sentences over and over and then rewrite what they have rewritten.
+- There are all kinds of writers and all kinds of methods, and any method that helps you to say what you want to say is the right method for you.
+- Good writing has an aliveness that keeps the reader reading from one paragraph to the next, and it’s not a question of gimmicks to “personalize” the author. It’s a question of using the English language in a way that will achieve the greatest clarity and strength.
+- Clutter is the disease of American writing. We are a society strangling in unnecessary words, circular constructions, pompous frills and meaningless jargon.
+- But the secret of good writing is to strip every sentence to its cleanest components. Every word that serves no function, every long word that could be a short word, every adverb that carries the same meaning that’s already in the verb, every passive construction that leaves the reader unsure of who is doing what—these are the thousand and one adulterants that weaken the strength of a sentence.
+- How can the rest of us achieve such enviable freedom from clutter? The answer is to clear our heads of clutter. Clear thinking becomes clear writing; one can’t exist without the other.
+- Writers must therefore constantly ask: what am I trying to say? Surprisingly often they don’t know. Then they must look at what they have written and ask: have I said it? Is it clear to someone encountering the subject for the first time? If it’s not, some fuzz has worked its way into the machinery. The clear writer is someone clearheaded enough to see this stuff for what it is: fuzz.
+- Writing improves in direct ratio to the number of things we can keep out of it that shouldn’t be there.
+- Clutter is the ponderous euphemism that turns a slum into a depressed socioeconomic area, garbage collectors into waste-disposal personnel and the town dump into the volume reduction unit.
+- “political speech and writing are largely the defense of the indefensible....
+- Is there any way to recognize clutter at a glance? Here’s a device my students at Yale found helpful. I would put brackets around every component in a piece of writing that wasn’t doing useful work. Often just one word got bracketed: the unnecessary preposition appended to a verb (“order up”), or the adverb that carries the same meaning as the verb (“smile happily”), or the adjective that states a known fact (“tall skyscraper”).
+- Most first drafts can be cut by 50 percent without losing any information or losing the author’s voice.
+- You can develop the same eye. Look for the clutter in your writing and prune it ruthlessly. Be grateful for everything you can throw away. Reexamine each sentence you put on paper. Is every word doing new work? Can any thought be expressed with more economy? Is anything pompous or pretentious or faddish? Are you hanging on to something
+- Few people realize how badly they write. Nobody has shown them how much excess or murkiness has crept into their style and how it obstructs what they are trying to say.
+- The point is that you have to strip your writing down before you can build it back up. You must know what the essential tools are and what job they were designed to do.
+- Good writers are visible just behind their words. If you aren’t allowed to use “I,” at least think “I” while you write, or write the first draft in the first person and then take the “I”s out. It will warm up your impersonal style.
+- “And yet, on balance, affirmative action has, I think, been a qualified success.” A 13-word sentence with five hedging words. I give it first prize as the most wishy-washy sentence in modern public discourse,
+- Writing is an act of ego, and you might as well admit it. Use its energy to keep yourself going.
+- You are writing for yourself. Don’t try to visualize the great mass audience. There is no such audience—every reader is a different person. Don’t try to guess what sort of thing editors want to publish or what you think the country is in a mood to read.
+- Never say anything in writing that you wouldn’t comfortably say in conversation. If you’re not a person who says “indeed” or “moreover,” or who calls someone an individual (“he’s a fine individual”), please don’t write it.
+- First, work hard to master the tools. Simplify, prune and strive for order. Think
+- First, work hard to master the tools. Simplify, prune and strive for order.
+- Notice the decisions that other writers make in their choice of words and be finicky about the ones you select from the vast supply. The race in writing is not to the swift but to the original.
+- The race in writing is to the original!
+- Make a habit of reading what is being written today and what was written by earlier masters. Writing is learned by imitation. If anyone asked me how I learned to write, I’d say I learned by reading the men and women who were doing the kind of writing I wanted to do and trying to figure out how they did it.
+- Why is one word good and another word cheap? I can’t give you an answer, because usage has no fixed boundaries. Language is a fabric that changes from one week to another, adding new strands and dropping old ones, and even word freaks fight over what is allowable, often reaching their decision on a wholly subjective basis such as taste (“notables” is sleazy). Which still leaves the question of who our tastemakers are.
+- today’s spoken garbage may be tomorrow’s written gold.
+- Good usage, to me, consists of using good words if they already exist—as they almost always do—to express myself clearly and simply to someone else.
+- All writing is ultimately a question of solving a problem. It may be a problem of where to obtain the facts or how to organize the material. It may be a problem of approach or attitude, tone or style. Whatever it is, it has to be confronted and solved.
+- Unity is the anchor of good writing. So, first, get your unities straight. Unity not only keeps the reader from straggling off in all directions; it satisfies your readers’ subconscious need for order and reassures them that all is well at the helm.
+- What annoys us is that the writer never decided what kind of article he wanted to write or how he wanted to approach us. He comes at us in many guises, depending on what kind of material he is trying to purvey. Instead of controlling his material, his material is controlling him. That wouldn’t happen if he took time to establish certain unities.
+- Every writing project must be reduced before you start to write.
+- Therefore think small. Decide what corner of your subject you’re going to bite off, and be content to cover it well and stop.
+- every successful piece of nonfiction should leave the reader with one provocative thought that he or she didn’t have before. Not two thoughts, or five—just one.
+- Trust your material if it’s taking you into terrain you didn’t intend to enter but where the vibrations are
+- Trust your material if it’s taking you into terrain you didn’t intend to enter but where the vibrations are
+- Trust your material if it’s taking you into terrain you didn’t intend to enter but where the vibrations are good.
+- Trust your material if it’s taking you into terrain you didn’t intend to enter but where the vibrations are good. Adjust your style accordingly and proceed to whatever destination you reach.
+- The most important sentence in any article is the first one. If it doesn’t induce the reader to proceed to the second sentence, your article is dead.
+- But take special care with the last sentence of each paragraph—it’s the crucial springboard to the next paragraph. Try to give that sentence an extra twist of humor or surprise, like the periodic “snapper” in the routine of a stand-up comic.
+- One moral of this story is that you should always collect more material than you will use. Every article is strong in proportion to the surplus of details from which you can choose the few that will serve you best—if you don’t go on gathering facts forever. At some point you must stop researching and start writing.
+- Another approach is to just tell a story. It’s such a simple solution, so obvious and unsophisticated, that we often forget that it’s available to us. But narrative is the oldest and most compelling method of holding someone’s attention; everybody wants to be told a story.
+- Another approach is to just tell a story. It’s such a simple solution, so obvious and unsophisticated, that we often forget that it’s available to us. But narrative is the oldest and most compelling method of holding someone’s attention; everybody wants to be told a story. Always look for ways to convey your information in narrative form.
+- Always look for ways to convey your information in narrative form.
+- Knowing when to end an article is far more important than most writers realize. You should give as much thought to choosing your last sentence as you did to your first.
+- That’s the negative reason for remembering the importance of the last sentence. Failure to know where that sentence should occur can wreck an article that until its final stage has been tightly constructed. The positive reason for ending well is that a good last sentence—or last paragraph—is a joy in itself. It gives the reader a lift, and it lingers when the article is over.
+- For the nonfiction writer, the simplest way of putting this into a rule is: when you’re ready to stop, stop. If you have presented all the facts and made the point you want to make, look for the nearest exit.
+- But what usually works best is a quotation. Go back through your notes to find some remark that has a sense of finality, or that’s funny, or that adds an unexpected closing detail.
+- Short is better than long.
+- Verbs are the most important of all your tools. They push the sentence forward and give it momentum. Active verbs push hard; passive verbs tug fitfully.
+- Be precise. Use precise verbs.
+- Again and again in careless writing, strong verbs are weakened by redundant adverbs. So are adjectives and other parts of speech:
+- Don’t say you were a bit confused and sort of tired and a little depressed and somewhat annoyed. Be confused. Be tired. Be depressed. Be annoyed. Don’t hedge your prose with little timidities. Good writing is lean and confident.
+- There is no minimum length for a sentence that’s acceptable in the eyes of God.
+- Surprise is the most refreshing element in nonfiction writing. If something surprises you it will also surprise—and delight—the people you are writing for, especially as you conclude your story and send them on their way.
+- Most adverbs are unnecessary. You will clutter your sentence and annoy the reader if you choose a verb that has a specific meaning and then add an adverb that carries the same meaning.

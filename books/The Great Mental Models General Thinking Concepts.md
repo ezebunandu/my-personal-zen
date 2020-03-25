@@ -1,0 +1,77 @@
+# The Great Mental Models General Thinking Concepts
+- Munger has a way of thinking through problems using what he calls a broad latticework of mental models. These are chunks of knowledge from different disciplines that can be simplified and applied to better understand the world.
+- Being able to accurately describe the full scope of a situation is the first step to understanding it.
+- the truth is, most problems are multidimensional, and thus having more lenses often offers significant help with the problems we are facing.
+- When understanding is separated from reality, we lose our powers. Understanding must constantly be tested against reality and updated accordingly.
+- Our failures to update from interacting with reality spring primarily from three things: not having the right perspective or vantage point, ego-induced denial, and distance from the consequences of our decisions
+- The first flaw is perspective. We have a hard time seeing any system that we are in.
+- We must be open to other perspectives if we truly want to understand the results of our actions. Despite
+- We must be open to other perspectives if we truly want to understand the results of our actions.
+- The second flaw is ego. Many of us tend to have too much invested in our opinions of ourselves to see the world’s feedback—the feedback we need to update our beliefs about reality.
+- First, we’re so afraid about what others will say about us that we fail to put our ideas out there and subject them to criticism. This way we can always be right. Second, if we do put our ideas out there and they are criticized, our ego steps in to protect us. We become invested in defending instead of upgrading our ideas.
+- It’s easier to fool ourselves that we’re right at a high level than at the micro level, because at the micro level we see and feel the immediate consequences.
+- We also tend to undervalue the elementary ideas and overvalue the complicated ones.
+- But simple ideas are of great value because they can help us prevent complex problems.
+- Understanding only becomes useful when we adjust our behavior and actions accordingly.
+- In every situation, we need to figure out which models are reliable and useful. We must also discard or update the unreliable ones, because unreliable or flawed models come with a cost.
+- Sharing knowledge, or learning the basics of the other disciplines, would lead to a more well-rounded understanding that would allow for better initial decisions about managing the forest.
+- “Well, the first rule is that you can’t really know anything if you just remember isolated facts and try and bang ‘em back. If the facts don’t hang together on a latticework of theory, you don’t have them in a usable form.
+- The world does not isolate itself into discrete disciplines. We only break it down that way because it makes it easier to study it. But once we learn something, we need to put it back into the complex system in which it occurs. We need to see where it connects to other bits of knowledge, to build our understanding of the whole. This is the value of putting the knowledge contained in mental models into a latticework.
+- What successful people do is file away a massive, but finite, amount of fundamental, established, essentially unchanging knowledge that can be used in evaluating the infinite number of unique scenarios which show up in the real world.
+- If a model works, we must invest the time and energy into understanding why it worked so we know when to use it again.
+- The map of reality is not reality. Even the best maps are imperfect. That’s because they are reductions of what they represent.
+- A map can also be a snapshot of a point in time, representing something that no longer exists. This is important to keep in mind as we think through problems and make better decisions.
+- Korzybski introduced and popularized the concept that the map is not the territory. In other words, the description of the thing is not the thing itself. The model is not reality. The abstraction is not the abstracted.
+- We run into problems when our knowledge becomes of the map, rather than the actual underlying territory it describes.
+- Reality is messy and complicated, so our tendency to simplify it is understandable. However, if the aim becomes simplification rather than understanding we start to make bad decisions.
+- what physicists do so well, and most of us do so poorly, is that they carefully delimit what Newtonian and Einsteinian physics are able to explain. They know down to many decimal places where those maps are useful guides to reality, and where they aren’t. And when they hit uncharted territory, like quantum mechanics, they explore it carefully instead of assuming the maps they have can explain it all.
+- Some of the biggest map/territory problems are the risks of the territory that are not shown on the map. When we’re following the map without looking around, we trip right over them.
+- in using maps, abstractions, and models, we must always be wise to their limitations. They are, by definition, reductions of something far more complex. There is always at least an element of subjectivity, and we need to remember that they are created at particular moments in time.
+- There is no definite checklist for figuring this out, but if you don’t have at least a few years and a few failures under your belt, you cannot consider yourself competent in a circle.
+- How do you know when you have a circle of competence? Within our circles of competence, we know exactly what we don’t know.
+- How do you know when you have a circle of competence? Within our circles of competence, we know exactly what we don’t know. We are able to make decisions quickly and relatively accurately. We possess detailed knowledge of additional information we might need to make a decision with full understanding, or even what information is unobtainable.
+- How do you know when you have a circle of competence? Within our circles of competence, we know exactly what we don’t know. We are able to make decisions quickly and relatively accurately. We possess detailed knowledge of additional information we might need to make a decision with full understanding, or even what information is unobtainable. We know what is knowable and what is unknowable and can distinguish between the two.
+- You can’t operate as if a circle of competence is a static thing, that once attained is attained for life. The world is dynamic. Knowledge gets updated, and so too must your circle.
+- Keeping a journal of your own performance is the easiest and most private way to give self-feedback. Journals allow you to step out of your automatic thinking and ask yourself: What went wrong? How could I do better?
+- A lot of professionals have an ego problem: their view of themselves does not line up with the way other people see them. Before people can change they need to know these outside views.
+- In cases like financial advisory, we’re not on solid ground until we know, in some detail, the compensation arrangement our advisor is under.
+- Karl Popper wrote “A theory is part of empirical science if and only if it conflicts with possible experiences13 and is therefore in principle falsifiable by experience.” The idea here is that if you can’t prove something wrong, you can’t really prove it right either.
+- the scientific method has demonstrated that knowledge can only be built when we are actively trying to falsify it
+- Rather, first principles thinking identifies the elements that are, in the context of any given situation, non-reducible.
+- When it comes down to it, everything that is not a law of nature is just a shared belief.
+- when we start with the idea that the way things are might not be the way they have to be, we put ourselves in the right frame of mind to identify first principles.
+- We’re all born rather creative, but during our formative years, it can be beaten out of us by busy parents and teachers. As adults, we rely on convention and what we’re told because that’s easier than breaking things down into first principles and thinking for yourself. Thinking through first principles is a way of taking off the blinders.
+- A better way to answer the “who would win” question is through a remarkable ability of the human brain—the ability to conduct a detailed thought experiment. Its chief value is that it lets us do things in our heads we cannot do in real life, and so explore situations from more angles than we can physically examine and test for.
+- But we can use thought experiments to explore unrealized outcomes—to re-run a process as many times as we like to see what could have occurred, and learn more about the limits we have to work with.
+- Thought experiments are definitely helpful for exploring the constraints to our decision-making and other potential courses of action that could have been taken, so long as we maintain a probabilistic approach to the potential outcomes of counter-factuals.
+- Thought experiments tell you about the limits of what you know and the limits of what you should attempt.
+- Billionaire success takes all of those things and more, plus a lot of luck. That’s a big reason that there’s no recipe.
+- Second-order thinking is thinking farther ahead and thinking holistically. It requires us to not only consider our actions and their immediate consequences, but the subsequent effects of those actions as well.
+- You can never delete consequences to arrive at the original starting conditions.
+- High degrees of connections make second-order thinking all the more critical, because denser webs of relationships make it easier for actions to have far-reaching consequences. You may be focused in one direction, not recognizing that the consequences are rippling out all around you.
+- Going for the immediate payoff in our interactions with people, unless they are a win-win, almost always guarantees that interaction will be a one-off. Maximizing benefits is something that happens over time.
+- Arguments are more effective when we demonstrate that we have considered the second-order effects and put effort into verifying that these are desirable as well.
+- Second-order thinking, as valuable as it is, must be tempered in one important way: You can’t let it lead to the paralysis of the Slippery Slope Effect, the idea that if we start with action A, everything after is a slippery slope down to hell, with a chain of consequences B, C, D, E, and
+- Second-order thinking, as valuable as it is, must be tempered in one important way: You can’t let it lead to the paralysis of the Slippery Slope Effect, the idea that if we start with action A, everything after is a slippery slope down to hell, with a chain of consequences B, C, D, E, and F. Garrett
+- Second-order thinking, as valuable as it is, must be tempered in one important way: You can’t let it lead to the paralysis of the Slippery Slope Effect, the idea that if we start with action A, everything after is a slippery slope down to hell, with a chain of consequences B, C, D, E, and F.
+- The future is far from determined and we can better navigate it by understanding the likelihood of events that could impact us.
+- given that we have limited but useful information about the world, and are constantly encountering new information, we should probably take into account what we already know when we learn something new.
+- The problem is in the fat tails: The risk of terror violence is more like wealth, while stair-slipping deaths are more like height and weight. In the next ten years, how many events are possible? How fat is the tail?
+- We can think about three categories of objects: Ones that are harmed by volatility and unpredictability, ones that are neutral to volatility and unpredictability, and finally, ones that benefit from it.
+- The second thing we can do is to learn how to fail properly. Failing properly has two major components. First, never take a risk that will do you in completely. (Never get taken out of the game completely.) Second, develop the personal resilience to learn from your failures and start again. With these two rules, you can only fail temporarily.
+- trial and error carries the precious commodity of information.
+- Far more probability estimates are wrong on the “over-optimistic” side than the “under-optimistic” side.
+- Intelligence is not evidence. There is no chain of command or guarantee of authenticity.
+- As a thinking tool it means approaching a situation from the opposite end of the natural starting point.
+- Avoiding stupidity is easier than seeking brilliance.
+- We tend to keep our most prized possessions where we can easily grab them in case of emergency.
+- Bernays didn’t focus on how to sell more cigarettes to women within the existing social structure. Sales would have undoubtedly been a lot more limited. Instead he thought about what the world would look like if women smoked often and anywhere, and then set about trying to make that world a reality.
+- loss.
+- The index fund operates on the idea that accruing wealth has a lot to do with minimizing loss.
+- Instead, we can try inverting the goal. It becomes, not getting rich, but avoiding being poor. Instead of trying to divine the decisions that will bring wealth, we first try to eliminate those behaviors that are guaranteed to erode it.
+- medical students are taught to heed the saying, “When you hear hoofbeats, think horses, not zebras.”
+- One important counter to Occam’s Razor is the difficult truth that some things are simply not that simple.
+- Hanlon’s Razor states that we should not attribute to malice that which is more easily explained by stupidity.
+- Hanlon’s Razor states that we should not attribute to malice that which is more easily explained by stupidity. In a complex world, using this model helps us avoid paranoia and ideology. By not generally assuming that bad results are the fault of a bad
+- Hanlon’s Razor states that we should not attribute to malice that which is more easily explained by stupidity. In a complex world, using this model helps us avoid paranoia and ideology.
+- Failing to prioritize stupidity over malice causes things like paranoia. Always assuming malice puts you at the center of everyone else’s world. This is an incredibly self-centered approach to life. In reality, for every act of malice, there is almost certainly far more ignorance, stupidity, and laziness.

@@ -1,0 +1,13 @@
+# Grokking Algorithms An illustrated guide for programmers and other curious people
+- This is a search problem. And all these
+- This is a search problem. And all these cases use the same algorithm to solve the problem: binary search.
+- Binary search is an algorithm; its input is a sorted list of elements (I’ll
+- With binary search, you guess the middle number and eliminate half the remaining numbers every time.
+- Binary search only works when your list is in sorted order. For example, the names in a phone book are sorted in alphabetical order, so you can use binary search to look for a name.
+- The binary_search function takes a sorted array and an item. If the item is in the array, the function returns its position.
+- Well, guess what? I’m here to tell you that the best case is also the average case. If you always choose a random element in the array as the pivot, quicksort will complete in O(n log n) time on average. Quicksort is one of the fastest sorting algorithms out there, and it’s a very good example of D&C.
+- A hash function is a function where you put in a string[1] and you get back a number.
+- In technical terminology, we’d say that a hash function “maps strings to numbers.”
+- A greedy algorithm is simple: at each step, pick the optimal move.
+- In technical terms: at each step you pick the locally optimal solution, and in the end you’re left with the globally optimal solution.
+- And that’s where greedy algorithms shine, because they’re simple to write and usually get pretty close.
